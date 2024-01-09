@@ -10,7 +10,7 @@
 
 😄 Pronouns: She/Her
 
-⚡ Fun fact: I'm passionate about using tech to make work smarter and more fun!
+⚡ Fun fact: I'm all about using the latest tech to make work both smarter and more enjoyable! 🚀
 
 <!---
 orieasterly/orieasterly is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
