@@ -12,7 +12,7 @@
 
 ⚡ Fun fact: I'm all about using the latest tech to make work both smarter and more enjoyable! 🚀
 
-[My Resume](https://github.com/orieasterly/orieasterly/blob/main/OEasterly%20Resume%2024.pdf)
+[My Resume](https://github.com/orieasterly/orieasterly/blob/main/OEasterly%20Resume%202024.pdf)
 
 <!---
 orieasterly/orieasterly is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
