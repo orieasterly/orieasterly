@@ -6,7 +6,7 @@
 
 💞️ Open to collaboration on cool projects that involve data and creativity.
 
-📫 You can reach me at o.easterly@gmail.com or connect on LinkedIn.
+📫 You can reach me at o.easterly@gmail.com or connect on [LinkedIn](https://www.linkedin.com/in/orathai-easterly/).
 
 😄 Pronouns: She/Her
 
